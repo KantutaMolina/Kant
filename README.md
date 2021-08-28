@@ -1,2 +1,2 @@
 # Kant
- Algumas sobre mim
+ Algumas coisas sobre mim
